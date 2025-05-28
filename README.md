@@ -1,2 +1,3 @@
 # PPLABS6
-![image](https://github.com/user-attachments/assets/95fdc2f1-8e33-406e-a126-d19c6a352ac9)
+![image](https://github.com/user-attachments/assets/e87548f7-cc13-4158-bf1a-593b6cf3d00b)
+
